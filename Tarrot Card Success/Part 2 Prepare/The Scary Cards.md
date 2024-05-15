@@ -23,3 +23,7 @@ Old beliefs that no longer serve you that have created weak foundations
 If fragile, or depressed, start with oracle cards featuring angles or use both together.
 
 Tarot contains universal life lessons, but sometimes we need a more gentle approach
+
+Wait at least 24 hours after a huge shock, perfectly longer
+
+Add additional card if ending on one of the more intense cards
