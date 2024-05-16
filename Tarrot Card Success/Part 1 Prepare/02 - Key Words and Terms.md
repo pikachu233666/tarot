@@ -1,3 +1,5 @@
+# Key Words and Terms
+
 Spreads: how you spread the cards including one card spread, multiple-choice spread, horseshoe spread, three card spread and Celtic cross
 
 Position of cards: where the card is in the spread

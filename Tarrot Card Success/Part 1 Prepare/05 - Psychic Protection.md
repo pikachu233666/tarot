@@ -40,7 +40,7 @@ White light
 
 
 
-If you feel funny/ drained after a reading
+## If you feel funny/ drained after a reading
 
 - Go to God's light (by Universal Law anything that is not light must leave)
 - Stomp on the Ground bare-foot five times
@@ -51,7 +51,7 @@ If you feel funny/ drained after a reading
 
 
 
-Always rinse off after a reading
+## Always rinse off after a reading
 
 - Shower of light 
 - Cut symbol
